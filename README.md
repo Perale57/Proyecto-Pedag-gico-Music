@@ -1,4 +1,4 @@
 # Proyecto-Pedag-gico-Music
-Rhythm is a method that works with MUSIC and MOVEMENT for the DEVELOPMENT of CREATIVITY, SOCIAL COMPETENCES and SENSITIVITY. 
-The rhythm is defined by a sequence of sounds (notes, claps, drum beats)., Etc.
-For generations, a theory supported by foundations, by various experts in musicology where they emphasize the topic "Social frequency" where they explain in detail the frequency at which
+Se entiende en este contexto como el tipo de acciones y la conceptualización que permite crear situaciones imaginarias de transformación de la práctica.  Una construcción imaginaria de nuevas alternativas de acciones en el aula tiene muchas fuentes, para este intervalo de tiempo se espera que entren en juego al menos tres elementos {R,I,E}.  Por un lado, identificamos conocimientos sobre teorías del aprendizaje y la reflexión sobre cómo saber sobre el aprendizaje me permite generar nuevas propuestas didácticas.  Una segunda fuente es el conocimiento práctico del profesor - docente que aporta elementos concretos de los contextos en los que se generan las propuestas, y finalmente, la contribución que pueden hacer los investigadores en relación con el campo teórico y otras investigaciones.  
+En consecuencia, la negociación y la deliberación constituyen una base para la imaginación pedagógica.
+En el caso del curso, esta Imaginación Pedagógica se concreta en un proyecto de diseño, implementación y evaluación de intervenciones específicas de previously determined space  por parte de los participantes.
